@@ -1,0 +1,1 @@
+# umamusume-db.github.io
